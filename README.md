@@ -1,4 +1,4 @@
-ill have my first date in rivendell
+who tf likes coding im just here to rice 
 
 <!---
 aetherspritee/aetherspritee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
