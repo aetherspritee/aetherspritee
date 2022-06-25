@@ -1,4 +1,4 @@
-who tf likes coding im just here to rice 
+dont look
 
 <!---
 aetherspritee/aetherspritee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
